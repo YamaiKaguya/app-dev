@@ -1,3 +1,5 @@
+![Weathering With You](https://is5-ssl.mzstatic.com/image/thumb/Video114/v4/4e/a9/9e/4ea99ed3-9b21-1daf-6f61-b37ae1000706/FR_WEATHERINGWITHYOU_HD_000535_3840x2160_coverart.png/1200x675.jpg)
+
 # My Favorite Movie: *Weathering With You*
 
 *Weathering With You* is a visually stunning and emotionally charged film by **Makoto Shinkai**, the director of *Your Name*. Released in **2019**, it captivated audiences worldwide with its tale of love and weather manipulation, set against a backdrop of relentless rain in Tokyo.
