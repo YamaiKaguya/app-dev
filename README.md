@@ -28,6 +28,7 @@ The film follows **Hodaka Morishima**, a young runaway who moves to Tokyo, and *
 
 - **Hodaka Morishima**  
   A young boy who runs away from his rural home to Tokyo in search of a new life. He becomes deeply involved with Hina and her mysterious power.
+<img src="https://media.tenor.com/g5060oRZ8wAAAAAC/weathering-with-you.gif" alt="Weathering With You" width="100%" />
 
 - **Hina Amano**  
   A brave and determined girl with the ability to control the weather. She struggles with the burden of her powers and the consequences of using them.
@@ -39,7 +40,6 @@ The film follows **Hodaka Morishima**, a young runaway who moves to Tokyo, and *
 
 1. **Hodaka:** "I want to be with you, Hina. Even if it means the world will never be the same."
 2. **Hina:** "The weather’s always changing, but the sunshine will always come back eventually."
-![Weathering With You](https://media.tenor.com/g5060oRZ8wAAAAAC/weathering-with-you.gif)
 ## Visuals and Soundtrack
 
 - **Visuals:** The film is renowned for its breathtaking animation, particularly its depictions of Tokyo’s rainy landscapes and the ethereal beauty of the scenes involving Hina's weather manipulation. Every frame is meticulously crafted to evoke emotion and wonder.
