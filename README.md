@@ -29,14 +29,14 @@ The film follows **Hodaka Morishima**, a young runaway who moves to Tokyo, and *
 - **Hodaka Morishima**  
   A young boy who runs away from his rural home to Tokyo in search of a new life. He becomes deeply involved with Hina and her mysterious power.
 <div align="center">
-  <img src="https://th.bing.com/th/id/R.37efd907a88046e7e9d07ebffd8ee1b2?rik=GVv6Q9MJVx2jaA&riu=http%3a%2f%2fimages6.fanpop.com%2fimage%2fphotos%2f43200000%2fHina-and-Hodaka-tenki-no-ko-43284974-540-280.gif&ehk=%2brDJDpOI0%2bUjdtZE7X0%2fUFl8JCLW2HKbknkZAejChx0%3d&risl=&pid=ImgRaw&r=0" alt="Weathering With You" width="100%" />
+  <img src="https://th.bing.com/th/id/R.37efd907a88046e7e9d07ebffd8ee1b2?rik=GVv6Q9MJVx2jaA&riu=http%3a%2f%2fimages6.fanpop.com%2fimage%2fphotos%2f43200000%2fHina-and-Hodaka-tenki-no-ko-43284974-540-280.gif&ehk=%2brDJDpOI0%2bUjdtZE7X0%2fUFl8JCLW2HKbknkZAejChx0%3d&risl=&pid=ImgRaw&r=0" alt="Weathering With You" width="50%" />
 </div>
 
 
 - **Hina Amano**  
   A brave and determined girl with the ability to control the weather. She struggles with the burden of her powers and the consequences of using them.
 <p align="center">
-  <img src="https://pa1.narvii.com/7263/9135a4bdb9f6320298463c360b619fea5cbcf528r1-540-304_hq.gif" alt="Weathering With You" />
+  <img src="https://pa1.narvii.com/7263/9135a4bdb9f6320298463c360b619fea5cbcf528r1-540-304_hq.gif" alt="Weathering With You"  width="50%" />
 </p>
 
 
