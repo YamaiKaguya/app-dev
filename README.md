@@ -36,7 +36,7 @@ The film follows **Hodaka Morishima**, a young runaway who moves to Tokyo, and *
 - **Hina Amano**  
   A brave and determined girl with the ability to control the weather. She struggles with the burden of her powers and the consequences of using them.
 <p align="center">
-  <img src="https://c.tenor.com/NRWSenc7Se0AAAAd/weathering-with-you.gif" alt="Weathering With You" />
+  <img src="[https://c.tenor.com/NRWSenc7Se0AAAAd/weathering-with-you.gif](https://pa1.narvii.com/7263/9135a4bdb9f6320298463c360b619fea5cbcf528r1-540-304_hq.gif)" alt="Weathering With You" />
 </p>
 
 
