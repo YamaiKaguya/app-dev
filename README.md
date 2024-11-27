@@ -28,10 +28,13 @@ The film follows **Hodaka Morishima**, a young runaway who moves to Tokyo, and *
 
 - **Hodaka Morishima**  
   A young boy who runs away from his rural home to Tokyo in search of a new life. He becomes deeply involved with Hina and her mysterious power.
+![Weathering With You](https://th.bing.com/th/id/R.37efd907a88046e7e9d07ebffd8ee1b2?rik=GVv6Q9MJVx2jaA&riu=http%3a%2f%2fimages6.fanpop.com%2fimage%2fphotos%2f43200000%2fHina-and-Hodaka-tenki-no-ko-43284974-540-280.gif&ehk=%2brDJDpOI0%2bUjdtZE7X0%2fUFl8JCLW2HKbknkZAejChx0%3d&risl=&pid=ImgRaw&r=0)
 
 - **Hina Amano**  
   A brave and determined girl with the ability to control the weather. She struggles with the burden of her powers and the consequences of using them.
 ![Weathering With You](https://c.tenor.com/NRWSenc7Se0AAAAd/weathering-with-you.gif)
+
+
 
 - **Nagi Amano**  
   Hina’s younger brother, who plays a key role in the story, offering moments of humor and support.
