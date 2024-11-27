@@ -40,11 +40,12 @@ The film follows **Hodaka Morishima**, a young runaway who moves to Tokyo, and *
 </p>
 
 
-
-
-
 - **Nagi Amano**  
   Hina’s younger brother, who plays a key role in the story, offering moments of humor and support.
+<p align="center">
+  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/1fe56053-597e-45b3-a3b1-f26197574147/deb1dxg-39b4e7be-6c7b-4f32-9079-9b8916cef24d.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzFmZTU2MDUzLTU5N2UtNDViMy1hM2IxLWYyNjE5NzU3NDE0N1wvZGViMWR4Zy0zOWI0ZTdiZS02YzdiLTRmMzItOTA3OS05Yjg5MTZjZWYyNGQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.0sNTMCO4hF35A2NRTouj9Zf8a_a2xMpFZjN0dJ0AEZo" alt="Weathering With You" />
+</p>
+
 
 ## Notable Quotes
 
